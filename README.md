@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Lenilogan
+- 👋 Hi, I’m @God'spowerAAEEQQUUIITTAASS
 - 👀 I’m interested in ... Everything
-- 🌱 I’m currently learning metaphysics truth
+- 🌱 I’m currently learning equity for the whole human race.
 - 💞️ I’m looking to collaborate on ... Xxx 
 - 📫 How to reach me ...+2349060186018,+2348126222135 loganmatthew.ml@gmail.com
 
